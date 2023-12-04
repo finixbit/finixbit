@@ -27,4 +27,4 @@ I'm Samuel, a Senior Software Engineer and Security Researcher with several year
 
 ## Get in touch
 
-[@twitter/finixbit](https://twitter.com/finixbit) / [Setup a Meeting on Calendly](https://calendly.com/finixbit) / [Blog](https://finixbit.github.io/)
+samuelasirifi1 [at] gmail [dot] com / [Twitter](https://twitter.com/finixbit) / [Setup a Meeting on Calendly](https://calendly.com/finixbit) / [Blog](https://finixbit.github.io/)
